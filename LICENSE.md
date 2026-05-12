@@ -1,4 +1,4 @@
-# 
+# Enhance Final Cut Pro for macOS with automatic Final Cut Pro for macOS LUT | lens-flare + keyframe-animation, the #1 lut. Includes lens-flare and keyframe-animation for a smoother
 
 
 
